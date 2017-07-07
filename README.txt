@@ -1,0 +1,1 @@
+O PSD utilizado para a produção desta página foi obtido no link https://dcrazed.com/free-photoshop-psd-website-templates/ e reproduzido em código como ferramenta de estudo.
